@@ -1,0 +1,567 @@
+亚博app软件ios  【罔：𝒀𝟏𝒀· 𝑪𝑪】  <浏览器手动输入>【首纯送100%】【世界杯欧冠赞助商】【十三年口碑祝您】【鸿运当头好运到】【财源滚滚奔您来】【请认准OYYL】【亚博官方直营】 换手气，上欧易！
+
+BOCAI·LOVE唯一顶级品牌担保！全网最高返水！
+
+亚博app软件ios 【罔：𝒀𝟏𝒀· 𝑪𝑪】 点击进入注册即可
+
+亚博app软件ios  【罔：𝒀𝟏𝒀· 𝑪𝑪】  点击进入注册即可
+
+亚博app软件ios 【飞机-@aibocaicc】 
+
+【新客专属】刚来就给大的！首存最高 18888 奖励直接安排
+
+【新客专属】满周满月连送不停，最高可领 18888 元
+
+<h1> AI Builders Digest 今日热点快报</h1>
+<p><strong>2026年07月25日 14时53分56秒(UTC+8)</strong></p>
+<hr>
+<h2>一、国内时政</h2>
+<h3>中小学劳动课标准化开设，种菜手工实践走进课堂</h3>
+<p>交警夜间巡逻加密，严查酒驾超速违法行为<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%99%BE%E5%A7%93%E5%BD%A9%E7%A5%A8Welcome.md
+</p>
+
+<h3>普惠托育机构新增 20 家，缓解育儿压力</h3>
+<p>农村道路安防设施加装，减速带警示灯全线配齐<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/da91b2039f790ce4433debc68ed6875ce3fc0dbf
+</p>
+
+<h3>11. 地方财政运行保持稳定，重点领域支出保障能力如何进一步增强</h3>
+<p>数字档案馆建成，纸质档案全部数字化存档<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/206%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%BF%A1%E8%AA%89%E5%9B%BD%E9%99%85%E5%A8%B1%E4%B9%90APP.md
+</p>
+
+<h3>小区监控全面更新，治安防控能力提升</h3>
+<p>跨区域医疗转诊简化手续，异地就医更便捷<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/9eec199b70b1cf927380b1c61d9ebe9879f6f2a5
+</p>
+
+<h3>工业 5G 专网落地厂区，生产数据实时互通</h3>
+<p>国产平价特效药纳入医保，大幅降低患者药费负担<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/204%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%B0%8A%E9%BE%99%E7%8E%B0%E9%87%91%E5%A8%B1%E4%B9%90%E4%BA%BA%E7%94%9F%E5%B0%B1%E6%98%AF%E6%90%8F.md
+</p>
+
+<h3>线上虚拟展会平台迭代，3D 展厅沉浸式参展</h3>
+<p>灵活就业社保参保渠道拓宽，线上即可缴费<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/763edf3576327c0e24a6b77216598dacfeaff674
+</p>
+
+<h3>AI 降噪耳机全新算法，嘈杂环境清晰通话听歌</h3>
+<p>登山步道安全隐患排查，加固松动护栏台阶<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/204%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%BC%80%E5%85%83%E6%A3%8B%E7%89%8C%E6%9C%80%E6%96%B0%E7%89%88.md
+</p>
+
+<h3>64. 财政政策支持区域协调发展，重点地区将迎来哪些投资机会</h3>
+<p>城市绿化补植完成，街头绿意持续增加<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/550e7ca901710126896750e88e08a2c764f54514
+</p>
+
+<h3>母婴候车室覆盖全城公交站点，贴心呵护宝妈</h3>
+<p>核酸便民采样点优化，高峰时段增设窗口<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%B1%B3%E5%8D%9AAPP%E5%AE%98%E7%BD%91.md
+</p>
+
+<h3>红外 AI 测温仪升级，远距离快速识别人体温度</h3>
+<p>社区青少年篮球、羽毛球公益培训班开课<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/51be8830337361ac890de7946efea4b8201ce65b
+</p>
+
+<h3>水下无线充电技术试验成功，水下设备无需回收充电</h3>
+<p>光伏产业海外订单激增，本土企业抢占国际市场<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E9%9B%B7%E7%AB%9E%E6%8A%80%E5%B9%B3%E5%8F%B0.md
+</p>
+
+<h3>港口集装箱吞吐量稳步增长，外贸流通顺畅</h3>
+<p>学区划分公示发布，就近入学政策落地<br>
+| 来源：https://github.com/thomah7t/pdauqr/commit/5899d3b2a13df7202eaf13f65a74f09f188d351f
+</p>
+
+<h3>社区每月开展免费理发，专为高龄独居老人服务</h3>
+<p>乡村垃圾集中清运，村容村貌焕然一新<br>
+| 来源：https://github.com/maleringjul/yxgdfh/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%85%A8%E7%90%83%E5%8D%81%E5%A4%A7%E7%BD%91%E8%B5%8C%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>创业小额贷款简化流程，扶持小微创业者</h3>
+<p>校园绿植劳动基地建成，学生亲手种植养护作物<br>
+| 来源：https://github.com/maleringjul/yxgdfh/commit/9916544bd8512e71eea47b9b09824730c91fbbaa
+</p>
+
+<h3>39. 财政投入持续增加，教育医疗养老等领域将迎来哪些改善</h3>
+<p>可降解塑料全面推广，传统塑品逐步替换<br>
+| 来源：https://github.com/designgophing/sjrrfa/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A6686%E4%BD%93%E8%82%B2app%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>饮用水水质定期公示，居民喝水更安心</h3>
+<p>智慧物流园区建成，分拣配送全程自动化<br>
+| 来源：https://github.com/designgophing/sjrrfa/commit/5593d1b4572dd40d14085705b1bd52f67cae75de
+</p>
+
+<h3>43. 重点领域支出保持增长，民生改善与经济发展如何相互促进</h3>
+<p>81. 政府投资方向不断优化，更多资金投向具有长期效益的领域<br>
+| 来源：https://github.com/gray8isj/vqsovi/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%AB%8B%E5%8D%9A%E4%BD%93%E8%82%B2app%E8%8B%B9%E6%9E%9C%E7%89%88%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>成人职业技能培训班扩招，零基础学习热门技术</h3>
+<p>地下管网智能监测传感器铺设，实时预警泄漏<br>
+| 来源：https://github.com/gray8isj/vqsovi/commit/a8ab0ec0751337501af0788d89d75f079f9e7af9
+</p>
+
+<h3>84. 地方政府加快项目建设，专项债资金使用效率如何进一步提升</h3>
+<p>残障人士无障碍出行专线公交正式运营<br>
+| 来源：https://github.com/xexoxy/pcoftq/blob/main/204%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%80%8E%E6%A0%B7%E6%B3%A8%E5%86%8C%E7%99%BE%E5%AE%B6%E4%B9%90%E8%B4%A6%E5%8F%B7.md
+</p>
+
+<h3>困难家庭免费家电检修服务上线</h3>
+<p>家用 AI 扫地机器人集成自动清洗、烘干、集尘<br>
+| 来源：https://github.com/xexoxy/pcoftq/commit/841f585b4ce2414460ae2803ece6cb5107ba3c60
+</p>
+
+<h3>电信反诈专线开通，一键举报诈骗线索</h3>
+<p>防汛物资统一盘点补充，确保应急储备充足<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/206%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3Ayabo%E4%BA%9A%E6%90%8F%E6%89%8B%E6%9C%BA%E6%9C%80%E6%96%B0%E7%89%88app.md
+</p>
+
+<h3>景区智能导览机器人上岗，提供多语种讲解</h3>
+<p>夜间经济扶持政策发布，夜市街区全面升级<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/60351ea9b7378531a8d5f92d5e78e95d787ec448
+</p>
+
+<h3>生物 3D 打印器官模型，辅助医生术前规划手术</h3>
+<p>AI 招聘筛选系统落地企业，高效匹配求职人才<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%BA%BF%E5%8D%9A.md
+</p>
+
+<h3>中医药馆全覆盖社区，针灸推拿平价便民服务</h3>
+<p>成人职业技能培训班扩招，零基础学习热门技术<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/703617ff1645568117a5bca03a200f2b20ebf70f
+</p>
+
+<h3>地铁增设轮椅无障碍坡道，方便残障人士出行</h3>
+<p>电商平台虚假促销专项整治，规范价格标注行为<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%87%A4%E5%87%B0%E4%BD%93%E8%82%B2%E6%89%8B%E6%9C%BA%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>乡村文化广场建成，村民傍晚休闲有好去处</h3>
+<p>家政行业信用平台上线，可查询从业人员资质<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/e684b1102bf4dc05558fbc75de169e6699607ab1
+</p>
+
+<h3>养老院防跌倒安全改造，增设扶手防滑设施</h3>
+<p>证券市场投资者保护新规出台，减少投资陷阱<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%B9%90%E8%BF%AA%E7%99%BB%E5%BD%95%E7%95%8C%E9%9D%A2.md
+</p>
+
+<h3>居住证线上申领通道开通，邮寄到家无需现场领取</h3>
+<p>太空太阳能电站试验成功，新型清洁能源有望普及<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/8900a9a9d3b8df95cc1a23c4ffc59eefac72ecee
+</p>
+
+<h3>储能电池管理系统国产自研，安全性能优化</h3>
+<p>老旧楼梯扶手翻新加固，保障老人上下楼安全<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A9%E7%90%83%E4%BD%93%E8%82%B2.md
+</p>
+
+<h3>成品油市场专项执法，查处无证私售黑油点</h3>
+<p>校园门禁智能升级，外来人员实名登记方可入校<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/2e2c9ad5d48198ba4362ad0ad07163148959a0a2
+</p>
+
+<h3>大学生实习补贴发放，减轻外出实习生活开支</h3>
+<p>城市过街天桥增设便民座椅，方便行人休息<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3Akok%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91.md
+</p>
+
+<h3>烟花爆竹管控执法，禁燃区域严查违规燃放</h3>
+<p>信用卡消费分期优惠加码，刺激居民合理消费<br>
+| 来源：https://github.com/thomah7t/pdauqr/commit/ae85f8ca0e22f1e8cd273bf8c8f345a5270653f3
+</p>
+
+<h3>乡土文化课程走进乡村校园，了解本地历史民俗</h3>
+<p>生猪养殖规模化升级，稳定肉类市场供给<br>
+| 来源：https://github.com/maleringjul/yxgdfh/blob/main/209%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%99%BE%E5%AE%B6%E4%B9%90ag%E8%B7%9Fbg%E6%9C%89%E5%95%A5%E5%8C%BA%E5%88%AB.md
+</p>
+
+<h3>云端仿真设计平台上线，制造业降低研发样机成本</h3>
+<p>线上 AI 课堂普及乡村学校，补齐师资短板<br>
+| 来源：https://github.com/maleringjul/yxgdfh/commit/90e3ad07401f3ac62ac12de676b4a4c253212e09
+</p>
+
+<h3>植物基食品赛道升温，健康饮食消费新趋势</h3>
+<p>危化品仓库防爆改造，完善通风泄压设施<br>
+| 来源：https://github.com/designgophing/sjrrfa/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E9%9B%B7%E9%80%9F%E4%BD%93%E8%82%B2%E6%AF%94%E5%88%86%E5%AE%98.md
+</p>
+
+<h3>燃气安全宣传海报张贴至每栋居民楼栋</h3>
+<p>农产品质量溯源系统上线，扫码查看种植全过程<br>
+| 来源：https://github.com/designgophing/sjrrfa/commit/9dffb42c2b02a9d1234858cd2836842e0e33bcb8
+</p>
+
+<h3>12. 财政政策更加积极有为，促消费和扩投资将如何同步推进</h3>
+<p>共享单车电子围栏划定，规范车辆停放区域<br>
+| 来源：https://github.com/gray8isj/vqsovi/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%A3%8B%E7%89%8C%E9%BE%99%E8%99%8E%E5%AF%B9%E5%86%B3.md
+</p>
+
+<h3>储能电池管理系统国产自研，安全性能优化</h3>
+<p>宠物粪便收集箱全覆盖，倡导文明养宠<br>
+| 来源：https://github.com/gray8isj/vqsovi/commit/26cf266675b376c72466f3dad8d357d75d19e646
+</p>
+
+<h3>地下水水质监测常态化，保障饮水健康</h3>
+<p>农村道路拓宽硬化，乡村出行通畅度提升<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%99%BE%E5%AE%B6%E4%B9%90%E7%9A%84%E5%B9%B3%E5%8F%B0%E5%93%AA%E4%B8%AA%E7%A8%B3.md
+</p>
+
+<h3>茶饮连锁本土品牌扩张，线下门店持续新增</h3>
+<p>隧道智能通风照明系统，根据车流自动调节能耗<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/64593bd5ab912d69939ca7df985a50d605b292a7
+</p>
+
+
+<h2>二、民生社会</h2>
+<h3>数字工厂示范项目验收，生产全程智能管控</h3>
+<p>闲置物品交换市集开市，邻里互换减少浪费<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E9%A3%9E%E7%A6%BD%E8%B5%B0%E5%85%BD%E6%A3%8B%E7%89%8C%E6%B8%B8%E6%88%8F%E5%93%AA%E9%87%8C%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>人行天桥电梯投入运行，方便行动不便人群</h3>
+<p>居民储蓄适度转化消费，内需潜力持续释放<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/ea882b6b28d748ef2538135e57a2d41dda4392ec
+</p>
+
+<h3>青少年科创大赛启动，鼓励动手发明创造</h3>
+<p>宠物友好景区增多，携带宠物出游不再受限<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%B7%B4%E7%99%BB%E5%A8%B1%E4%B9%90%E5%9C%BA%E6%89%8B%E6%9C%BA%E7%99%BB%E5%BD%95.md
+</p>
+
+<h3>海洋智能浮标组网，全天候监测水文海洋环境</h3>
+<p>创业小额贷款简化流程，扶持小微创业者<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/1adb113a1db9620c85fe2b2cbdb11be731a78b92
+</p>
+
+<h3>七、时事政务 / 法治安全（471–500）</h3>
+<p>商场扶梯安全全面检修，更换磨损防护部件<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%AC%A2%E4%B9%90%E7%89%9B%E7%89%9B%E5%AE%98%E6%96%B9%E6%B8%B8%E6%88%8F%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>87. 财政资金支持重点产业发展，产业链韧性将如何持续增强</h3>
+<p>消防安全专项检查启动，商超小区逐一排查隐患<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/67504af0fac96b3fadfb8ac6d4ac5ff59536ce89
+</p>
+
+<h3>高校校企合作实训基地批量落地，提升就业实操能力</h3>
+<p>青少年普法短视频全网推送，线上普及法律知识<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/206%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%A4%A9%E5%8D%9A%E7%BB%BC%E5%90%88app%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>96. 财政政策更加注重可持续性，稳增长与防风险如何统筹兼顾</h3>
+<p>风电整机出口航线常态化，海外交付稳定<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/79b9f9ebef01c3d419c67b6aa5fb358ecf0f3b5b
+</p>
+
+<h3>小区电动车充电超时自动断电装置普及安装</h3>
+<p>环卫工人休息室升级，配备空调热水微波炉<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/209%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E8%8A%92%E6%9E%9C%E4%BD%93%E8%82%B2app%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>城市口袋公园持续新增，推窗见绿成为常态</h3>
+<p>骨质疏松免费筛查开启，中老年群体重点参与<br>
+| 来源：https://github.com/thomah7t/pdauqr/commit/6882b47a1ca286739338a4539eab767fe730c7fc
+</p>
+
+<h3>冷链物流基地建成投产，生鲜流通效率提升</h3>
+<p>室内装修污染监管强化，严查劣质建材销售<br>
+| 来源：https://github.com/maleringjul/yxgdfh/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%8D%8E%E4%BD%93%E8%82%B2%E5%AE%98%E7%BD%91.md
+</p>
+
+<h3>商用无人机物流航线开通，小件货物空中配送</h3>
+<p>23. 乡村振兴投入稳步增长，农业产业发展和农村基础设施持续改善<br>
+| 来源：https://github.com/maleringjul/yxgdfh/commit/5b6972e515dbb7b55e6bccdffdc86f2c1ff264d7
+</p>
+
+<h3>湿地公园生态修复完成，候鸟数量逐年增多</h3>
+<p>二手车流通新政落地，简化交易过户手续<br>
+| 来源：https://github.com/designgophing/sjrrfa/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E8%8B%B1%E7%9A%87%E5%A8%B1%E4%B9%90%E6%9C%80%E6%96%B0%E5%9C%B0%E5%9D%80.md
+</p>
+
+<h3>菜市场物价小幅回落，市民买菜成本有所降低</h3>
+<p>伤口换药社区门诊可办理，不用往返大医院<br>
+| 来源：https://github.com/designgophing/sjrrfa/commit/0cfe17a706cd76f0b73bc1457a052c10635560b6
+</p>
+
+<h3>固态储能电站落地社区，停电可自动应急供电</h3>
+<p>校园安全专项督查，全面整治校园周边风险<br>
+| 来源：https://github.com/gray8isj/vqsovi/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3Aag%E7%9C%9F%E4%BA%BA%E5%B9%B3%E5%8F%B0%E6%9C%89%E5%93%AA%E4%BA%9B.md
+</p>
+
+<h3>宠物文明养宠宣传走进各个居民小区</h3>
+<p>小区地下车库照明改造，昏暗区域全部亮化<br>
+| 来源：https://github.com/gray8isj/vqsovi/commit/e0f1c3d7e49b9eb8eee5d82b2b13d7d11be11228
+</p>
+
+<h3>大型商超消防应急演练，员工熟练掌握逃生流程</h3>
+<p>劳动争议巡回法庭进园区，就近解决用工纠纷<br>
+| 来源：https://github.com/xexoxy/pcoftq/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%98%93%E8%B6%A3%E5%8D%9AAPP%E6%89%8B%E6%9C%BA%E7%99%BB%E5%BD%95.md
+</p>
+
+<h3>户外新能源设备出口激增，海外市场需求旺盛</h3>
+<p>工业废水循环利用项目落地，企业节水降本增效<br>
+| 来源：https://github.com/xexoxy/pcoftq/commit/9814d6acaba465f8e7d5fdad93cb549de8205aa0
+</p>
+
+<h3>车路协同智慧道路改造完成，支撑自动驾驶落地</h3>
+<p>自来水管道更新工程完工，高层供水恢复稳定<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%8D%8A%E5%B2%9B%E4%B9%B0%E7%90%83%E5%AE%98%E6%96%B9%E7%BD%91.md
+</p>
+
+<h3>10. 宏观政策协同发力，财政工具将在稳增长中发挥怎样的作用</h3>
+<p>海洋监测智能浮标全域部署，实时预警台风海啸<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/5a9476db48c7fb9969cf5880458e4ad98fba10b0
+</p>
+
+<h3>车路协同系统全覆盖，自动驾驶行车安全性提升</h3>
+<p>智能农业机器人下地作业，完成播种施肥采收<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/200%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%B8%87%E5%85%83%E6%A3%8B%E7%89%8C%E4%BA%8C%E7%BB%B4%E7%A0%81.md
+</p>
+
+<h3>惠民菜篮子工程持续落地，平价菜每日供应</h3>
+<p>固态电池研发取得突破，充电速度续航双提升<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/bf762f4c723b4000642bcfdcc0d56b0d51ed74b4
+</p>
+
+<h3>证券市场投资者保护新规出台，减少投资陷阱</h3>
+<p>低保家庭水电费用减免政策正式实施<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%88%B1%E8%B5%A2%E4%BD%93%E8%82%B2%E5%9C%A8%E7%BA%BF%E7%99%BB%E5%BD%95%E5%85%A5%E5%8F%A3.md
+</p>
+
+<h3>中医三伏贴公益预约开启，调理秋冬易发慢性病</h3>
+<p>城市智能井盖内置传感器，丢失移位自动报警<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/1dfa9a31544418dda9764b52120a55e337f0a08b
+</p>
+
+<h3>家政服务行业标准化，统一培训持证上岗</h3>
+<p>储能设备市场需求爆发，上下游企业扩产增产<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%B9%B0%E7%90%83%E7%9A%84app%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD%20%20.md
+</p>
+
+<h3>风电装备出口订单大增，海外市场认可度提升</h3>
+<p>中考体育分值优化，鼓励学生长期坚持日常锻炼<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/6a60962962dfac6971bbf943db9379a326383591
+</p>
+
+<h3>人工智能大模型落地政务场景，提升办事效率</h3>
+<p>数字孪生城市平台建成，城市管理可视化管控<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%BE%B3%E9%97%A8%E8%B5%8C%E5%9C%BA%E6%9C%80%E6%96%B0%E6%89%8B%E6%9C%BA%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>写字楼经济回暖，中小企业入驻率持续回升</h3>
+<p>校园门禁智能升级，外来人员实名登记方可入校<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/086a4d016b2d83fb036d64f94067dd303d1ba532
+</p>
+
+<h3>三甲医院专家下沉社区坐诊，居民就近看名医</h3>
+<p>乡村特色文旅产业兴起，带动村民增收致富<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/209%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%B9%90%E8%BF%AA%E6%9C%80%E6%96%B0%E5%9C%B0%E5%9D%80.md
+</p>
+
+<h3>夜间集市规范化运营，带动周边商铺增收</h3>
+<p>共享单车乱停放执法劝导，规范城市通行秩序<br>
+| 来源：https://github.com/thomah7t/pdauqr/commit/53245810d2d9805d8770e9bbb155d3477791606a
+</p>
+
+<h3>中小学课后服务全面升级，增设艺术体育兴趣课程</h3>
+<p>广场舞噪音管控划定时段音量标准<br>
+| 来源：https://github.com/designgophing/sjrrfa/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%81%AB%E5%8D%9A%E4%BD%93%E8%82%B2%E6%89%8B%E6%9C%BA%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>81. 财政政策推动高质量发展，产业升级与民生改善如何协同并进</h3>
+<p>短途出行电动车销量攀升，契合绿色出行理念<br>
+| 来源：https://github.com/designgophing/sjrrfa/commit/1e49e8255cbfdef5a451b9ce5fc77145ec626865
+</p>
+
+<h3>低功耗智能门锁上市，续航可达五年无需换电池</h3>
+<p>数字孪生城市平台建成，城市管理可视化管控<br>
+| 来源：https://github.com/maleringjul/yxgdfh/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%A4%A9%E5%A4%A9%E6%B8%B8%E6%88%8F%E5%AE%98%E7%BD%91app%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>绿色建材推广政策出台，建筑行业低碳转型</h3>
+<p>少儿美术公益展览举办，展示中小学生原创作品<br>
+| 来源：https://github.com/maleringjul/yxgdfh/commit/d3101df6b9169e240040a644df716c023f7a651c
+</p>
+
+<h3>76. 政府投资发挥带动作用，社会资本参与意愿能否进一步提高</h3>
+<p>台风预警持续生效，沿海低洼群众有序转移<br>
+| 来源：https://github.com/gray8isj/vqsovi/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%BC%80%E5%85%83%E5%9B%BD%E9%99%85%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0.md
+</p>
+
+<h3>中医三伏贴公益预约开启，调理秋冬易发慢性病</h3>
+<p>乡村产业振兴专项资金拨付到位<br>
+| 来源：https://github.com/gray8isj/vqsovi/commit/3e2809d476337886006519f8f6f2c2621025333d
+</p>
+
+<h3>无烟社区创建推进，公共场所全面禁止吸烟</h3>
+<p>券商推出普惠理财服务，降低大众投资门槛<br>
+| 来源：https://github.com/xexoxy/pcoftq/blob/main/208%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%BC%A0%E7%BB%9F%E7%99%BE%E5%AE%B6%E4%B9%90%E5%8F%AF%E9%9D%A0%E8%BD%AF%E4%BB%B6.md
+</p>
+
+<h3>夜市划定规范经营区，兼顾烟火气与居民区安宁</h3>
+<p>82. 财政政策支持高质量发展，经济增长的质量和效益持续提升<br>
+| 来源：https://github.com/xexoxy/pcoftq/commit/eab58e90c1a0cd21fcaca60e043c2fa37cd6b75c
+</p>
+
+<h3>残疾人权益保障普法，完善无障碍设施配套</h3>
+<p>海洋监测智能浮标全域部署，实时预警台风海啸<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%A3%8B%E7%89%8C%E9%87%91%E8%8A%B1%E5%B9%B3%E5%8F%B0.md
+</p>
+
+<h3>菜市场完成升级改造，明码标价保障菜价稳定</h3>
+<p>广场舞噪音管控划定时段音量标准<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/4de6d5af1d0c7486960dca7bdaebb62d839dba7b
+</p>
+
+<h2>三、科技产业</h2>
+<h3>城市数字孪生平台建成，实时管控全城基础设施</h3>
+<p>家政从业人员持证上岗制度全面推行<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%8D%8E%E7%BA%B3app%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99.md
+</p>
+
+<h3>货运物流电子单据普及，节约纸质单据成本</h3>
+<p>社区防盗设施补贴发放，鼓励居民加装防盗门窗<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/7f58e7085c3663ebc81ab4a55e13c7b5f1680a6e
+</p>
+
+<h3>文明交通劝导员上岗，纠正闯红灯逆行陋习</h3>
+<p>老年助餐点推出送餐上门服务<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/206%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3Aqy88%E5%8D%83%E8%B5%A2%E5%9B%BD%E9%99%85%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95.md
+</p>
+
+<h3>线上政务查询系统升级，政策信息一键检索</h3>
+<p>建筑工人安全培训全覆盖，持证上岗规范操作<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/79dc4b95c6865d77b8aed92918d7141f8ef368ea
+</p>
+
+<h3>志愿者常态化上门，帮扶独居困难老人生活</h3>
+<p>重型机械出口订单充足，工程机械竞争力凸显<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%A5%BD%E8%8E%B1%E5%9D%9E.md
+</p>
+
+<h3>防汛物资统一盘点补充，确保应急储备充足</h3>
+<p>冷链物流基础设施完善，生鲜损耗大幅降低<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/82fd2d34f65f916afe67c8dc39a13b73fcc909ae
+</p>
+
+<h3>急救 120 响应速度提升，城区急救圈持续缩小</h3>
+<p>春耕种子质量专项抽检，杜绝劣质农资流入市场<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%B0%8A%E9%BE%99d88%E7%94%A8%E7%8E%B0%E5%A4%87%E7%94%A8.md
+</p>
+
+<h3>粮油加工产业园扩建，保障粮食加工供给稳定</h3>
+<p>湿地公园生态修复完成，大量野生鸟类回归栖息<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/3ef02a3e1a44bcdb1fc85493a326ac4b63bef51d
+</p>
+
+<h3>44. 财政政策支持科技创新，关键核心技术突破将获得哪些助力</h3>
+<p>碳捕集示范项目试运行，助力工业减排<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%BE%B3%E9%97%A8%E5%A4%AA%E9%98%B3%E5%9F%8E%E6%9C%80%E6%96%B0%E5%9C%B0%E5%9D%80.md
+</p>
+
+<h3>70. 积极财政政策注重提质增效，政策效果将通过哪些渠道释放</h3>
+<p>固态电池取得技术突破，电动车续航大幅延长<br>
+| 来源：https://github.com/thomah7t/pdauqr/commit/6f09e3a8af3797c754014f1db378d07bd44656bd
+</p>
+
+<h3>文明交通劝导员上岗，纠正闯红灯逆行陋习</h3>
+<p>边缘计算设备下沉社区，本地处理数据降低延迟<br>
+| 来源：https://github.com/maleringjul/yxgdfh/blob/main/209%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E4%BA%9A%E5%A8%B1%E5%9B%BD%E9%99%85com.md
+</p>
+
+<h3>电动车仓库集中充电安全规范全面落地</h3>
+<p>劳务派遣用工规范检查，保障派遣员工薪资福利<br>
+| 来源：https://github.com/maleringjul/yxgdfh/commit/c552d0d85ccee9099772111366ea4ce3cb5493d1
+</p>
+
+<h3>知识产权维权援助中心对外开放，免费提供咨询</h3>
+<p>85. 财政支持政策更加普惠，更多小微企业和个体经营者获得帮助<br>
+| 来源：https://github.com/designgophing/sjrrfa/blob/main/201%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E6%9E%81%E9%80%9F%E8%B5%9B%E8%BD%A6%E4%BF%A1%E8%AA%89%E5%A5%BD%E7%9A%84%E5%B9%B3%E5%8F%B0%E5%93%AA%E9%87%8C%E6%89%BE.md
+</p>
+
+<h3>高速路政专项整治，清理占道违规货车隐患</h3>
+<p>土壤智能检测仪下乡，农户一键检测土壤肥力<br>
+| 来源：https://github.com/designgophing/sjrrfa/commit/e883e3be9f689aeed2c2057d65354860cc06558b
+</p>
+
+<h3>餐饮店后厨可视化，顾客实时查看制作全过程</h3>
+<p>景区占道经营整治，恢复步道通行空间<br>
+| 来源：https://github.com/xexoxy/pcoftq/blob/main/203%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E9%BE%99%E8%99%8E%E5%92%8C%E7%9A%84%E7%BD%91%E5%9D%80.md
+</p>
+
+<h3>民法典普法宣传进乡村，提升群众法律意识</h3>
+<p>露营、户外装备市场火热，相关产业营收大增<br>
+| 来源：https://github.com/xexoxy/pcoftq/commit/f36c3e67ca539f3ed1fff228f766ebfa0606c9d8
+</p>
+
+<h3>绿色低碳产业投资加速，多地布局新能源项目</h3>
+<p>机床数控系统自主研发量产，摆脱进口依赖<br>
+| 来源：https://github.com/hloblasso/qlcght/blob/main/205%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%99%BE%E5%AE%B6%E4%B9%90%E5%BA%84%E9%97%B2%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>食用油价格平稳运行，市场供给充足无短缺</h3>
+<p>房屋装修违规拆改墙体执法，消除建筑安全隐患<br>
+| 来源：https://github.com/hloblasso/qlcght/commit/6389a7b47e5e0ea6ec5016b60a8af331427e18df
+</p>
+
+<h3>农村道路拓宽硬化，乡村出行通畅度提升</h3>
+<p>秋季开学校园安全大检查，消除各类隐患<br>
+| 来源：https://github.com/gray8isj/vqsovi/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E7%9B%9B%E5%A4%A7%E6%A3%8B%E7%89%8CApp%E7%99%BB%E5%BD%95%E7%B3%BB%E7%BB%9F.md
+</p>
+
+<h3>中小学家长学校定期开课，科学传授家庭教育方法</h3>
+<p>云端 AI 剪辑工具免费上线，普通人快速制作短视频<br>
+| 来源：https://github.com/gray8isj/vqsovi/commit/ae50a114f3c1cf0824b1646d5e14db3c2165165a
+</p>
+
+<h3>就业援助专项行动，为失业人员匹配岗位</h3>
+<p>67. 水利项目建设稳步实施，防灾减灾和水资源保障能力持续增强<br>
+| 来源：https://github.com/juanloolen/owvddi/blob/main/204%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3APG%E7%94%B5%E5%AD%90%E5%AE%98%E6%96%B9%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91.md
+</p>
+
+<h3>城市商圈智慧导购系统上线，提升消费体验</h3>
+<p>29. 税费优惠覆盖范围扩大，更多市场主体享受到政策支持<br>
+| 来源：https://github.com/juanloolen/owvddi/commit/b900d21e119d00c38a3af62a1f9fcc7cddbd1949
+</p>
+
+<h3>城市骑行绿道网络成型，串联公园商圈景点</h3>
+<p>特色小镇产业成型，文旅农业融合发展<br>
+| 来源：https://github.com/rsjzoma/tgjvda/blob/main/204%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E9%BB%84%E9%87%91%E5%9F%8E%E9%9B%86%E5%9B%A2%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD.md
+</p>
+
+<h3>校园食堂食材统一采购，严控食品安全</h3>
+<p>线上外贸展会常态化举办，对接海外采购商<br>
+| 来源：https://github.com/rsjzoma/tgjvda/commit/197b3d3c6ca054241187e40e1d2de010359f1d6d
+</p>
+
+<h3>食品安全抽检全覆盖，不合格商品立即下架</h3>
+<p>创业孵化基地配套补贴发放，扶持初创企业成长<br>
+| 来源：https://github.com/hartsin/vgwtvb/blob/main/207%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%8D%9A%E4%B9%90%E5%A4%A7%E8%B5%8C%E5%9C%BA.md
+</p>
+
+<h3>春耕种子质量专项抽检，杜绝劣质农资流入市场</h3>
+<p>宠物疫苗免费接种活动开启，降低人畜共患病风险<br>
+| 来源：https://github.com/hartsin/vgwtvb/commit/3dcd6313c20ee769355e4cf6aab5563b41a88440
+</p>
+
+<h3>工地高空作业安全带佩戴专项督查</h3>
+<p>数字藏品监管规范发布，遏制炒作投机乱象<br>
+| 来源：https://github.com/bjrain53/cchunx/blob/main/202%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%B8%9D%E8%B1%AA%E5%A8%B1%E4%B9%90app%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99.md
+</p>
+
+<h3>超高速光模块量产，支撑算力中心高速互联</h3>
+<p>大型仓储园区防火隔离带改造，降低火灾风险<br>
+| 来源：https://github.com/bjrain53/cchunx/commit/c87842edca02e0a3d0ec4f63dae30206ac1f8d9e
+</p>
+
+<h3>四、科技数码互联网类（601–750 条）</h3>
+<p>国风书法大赛举办，全民参与书写传统文化<br>
+| 来源：https://github.com/thomah7t/pdauqr/blob/main/206%E7%A7%91%E6%99%AE%E6%8C%87%E5%8D%97%3A%E5%A8%81%E5%B0%BC%E6%96%AF%E6%96%B0%E4%BA%BAV9.md
+</p>
+
+<h3>高校图书馆 24 小时开放，满足考研学生学习需求</h3
